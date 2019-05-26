@@ -1,7 +1,7 @@
 # Thoughts on Education
 - [Thoughts on Education](#thoughts-on-education)
   * [Children](#children)
-  + [19.05.24 Consistent Rule](#190524-consistent-rule)
+    + [19.05.24 Consistent Rule](#190524-consistent-rule)
 
 ## Children
 
