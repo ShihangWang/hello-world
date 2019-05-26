@@ -1,5 +1,7 @@
 # Thoughts on Education
 
+[TOC]
+
 ## Children
 
 ### 19.05.24 By ppEARintheRye (Weibo), a PhD student in Bilingual Education
