@@ -1,11 +1,12 @@
 # Thoughts on Education
 - [Thoughts on Education](#thoughts-on-education)
   * [Children](#children)
-  + [19.05.24 Consistent Rule By ppEARintheRye (Weibo), a PhD student in Bilingual Education](#190524-consistent-rule-by-ppearintherye--weibo---a-phd-student-in-bilingual-education)
+  + [19.05.24 Consistent Rule](#190524-consistent-rule)
 
 ## Children
 
-### 19.05.24 Consistent Rule By ppEARintheRye (Weibo), a PhD student in Bilingual Education
+### 19.05.24 Consistent Rule
+By ppEARintheRye (Weibo), a PhD student in Bilingual Education
 
 > 记得每次新老师培训，教务长都会反复说：课堂管理的核心就是“be consistent”. 也就是说，你对学生的要求，你的“赏罚”，要连贯，不要变来变去。后来有了自己的孩子，我发现跟孩子相处也是这样的，be consistent特别重要。很多时候，孩子不听话，不是ta的错，是我们大人没有consistent. 举例：
 
