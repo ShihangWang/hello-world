@@ -1,6 +1,9 @@
 # Thoughts on Education
+- [Thoughts on Education](#thoughts-on-education)
+  * [Children](#children)
+    + [19.05.24 By ppEARintheRye (Weibo), a PhD student in Bilingual Education](#190524-by-ppearintherye--weibo---a-phd-student-in-bilingual-education)
 
-[Children](## Children)
+<small><i><a href='http://ecotrust-canada.github.io/markdown-toc/'>Table of contents generated with markdown-toc</a></i></small>
 
 ## Children
 
