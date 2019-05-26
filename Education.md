@@ -1,6 +1,6 @@
 # Thoughts on Education
 
-[TOC]
+[Children](## Children)
 
 ## Children
 
